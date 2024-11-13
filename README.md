@@ -1,5 +1,6 @@
 # 💫 About Me:
-I'm Currently working on Data Analytics internship project
+I'm Currently working on Data Analytics internship project “Airiant”
+Reach out to me at:- sachinbnsachin73@gmail.com
 
 
 ## 🌐 Socials:
