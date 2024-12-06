@@ -5,7 +5,7 @@ Reach out to me at:- sachinbnsachin73@gmail.com
 
 
 ## 🌐 Socials:
- [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/sacchu_.g.o.w.d.a) 
+Instagram- [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/sacchu_.g.o.w.d.a) 
 
 Linked-in-(www.linkedin.com/in/sachin-b-n-3b7273203)
        
