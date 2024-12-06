@@ -5,7 +5,7 @@ Reach out to me at:- sachinbnsachin73@gmail.com
 
 
 ## 🌐 Socials:
- [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/sacchu_.g.o.w.d.a) Linked-in-(www.linkedin.com/in/sachin-b-n-3b7273203)
+ [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/sacchu_.g.o.w.d.a) Linked-in-[![Linked in](www.linkedin.com/in/sachin-b-n-3b7273203)
        RESUME-(https://drive.google.com/file/d/1P_dq8-HiX_AxPxYM4etawZcEZIcHvuM_/view?usp=sharing)
 
 # 💻 Tech Stack:
